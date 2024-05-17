@@ -1,2 +1,4 @@
 - 맛있겠다.
   - 람다람 - Soda City Funk 1분 21초 https://youtu.be/zhIScvlFn2w&t=81s
+- 손석희 영창피아노 욕설
+  - https://x.com/Ryuzeh/status/1095935884191354880
